@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Still working on getting all my school projects on code on here sit tight please...
 
 <!--
 **mosesmgk/mosesmgk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
